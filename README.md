@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Aayush Priyanshu
-**A passionate Software Engineer || Java Full Stack || Intern at Infosys from India**
+**A passionate Software Engineer || Java Full Stack || at Infosys from India**
 
 Email Me 👉 ✉️ **ayushpriyanshu989@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
